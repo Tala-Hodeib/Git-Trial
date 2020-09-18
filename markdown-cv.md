@@ -16,3 +16,4 @@
 Fluent in English (Spoken & Written)
 
 ## Interests
+Languages,Music,Superheroes,Coding
